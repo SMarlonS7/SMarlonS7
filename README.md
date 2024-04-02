@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do SMarlonS7 😁
+## Bem-vindo(a) ao perfil do SMarlonS7 😀
 
  <div>
    <a href="https://github.com/SMarlonS7">
